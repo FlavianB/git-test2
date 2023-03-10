@@ -1,1 +1,1 @@
-#Oare o sa mearga acum?
+#Oare o sa mearga>
